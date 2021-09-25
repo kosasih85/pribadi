@@ -1,0 +1,2 @@
+# pribadi
+buat pribadi
